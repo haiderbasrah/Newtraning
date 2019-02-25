@@ -1,0 +1,2 @@
+# Newtraning
+I do traning 
